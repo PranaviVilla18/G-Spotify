@@ -46,4 +46,4 @@ G-Spotify/
 
 **Pranavi Villa**
 
-• BTech Student • 
+1st year BTech Student 
